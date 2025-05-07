@@ -1,1 +1,1 @@
-- [이력서](https://www.notion.so/Resume-161697515944801688dfc2bfe8b5b2bd?pvs=4)
+- [이력서](https://imminent-lunch-7f5.notion.site/Resume-1e06975159448067af00fad1fba789b7?pvs=4)
