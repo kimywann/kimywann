@@ -1,1 +1,1 @@
-- [이력서](https://imminent-lunch-7f5.notion.site/Resume-1e06975159448067af00fad1fba789b7?pvs=4)
+- [이력서](https://imminent-lunch-7f5.notion.site/Frontend-Developer-1e06975159448067af00fad1fba789b7)
